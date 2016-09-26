@@ -1,1 +1,0 @@
-# TechModuleSeptember2016Exercises
